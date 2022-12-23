@@ -43,8 +43,8 @@ EU-Transparenzregister gelistet. In den Treffen 2018 und 2019 waren 72 Prozent (
 
 Auf Anfrage des ZDF Magazin Royale schreibt Frontex:
 
-    »Frontex trifft sich nicht mit Lobbyisten. Es lädt Firmenvertreter ein, um an den Industrie-Tagen der Agentur teilzunehmen, die Grenzschutz-Offiziellen
-    helfen sollen, über neue Technologien und Innovationen in Bezug auf Grenzkontrolle zu lernen.«
+    »Frontex trifft sich nicht mit Lobbyisten. Es lädt Firmenvertreter ein, um an den Industrie-Tagen der Agentur teilzunehmen,
+    die Grenzschutz-Offiziellen helfen sollen, über neue Technologien und Innovationen in Bezug auf Grenzkontrolle zu lernen.«
 
 Auch das ist falsch: Die Auswertung der Präsentationen und Kataloge zeigen, dass Unternehmen versucht haben, Einfluss auf die Politik der Agentur
 zu nehmen. Teilweise wurden Vorschläge bereits umgesetzt.
